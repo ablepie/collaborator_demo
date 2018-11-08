@@ -1,1 +1,1 @@
-my favorite city is Seattle
+my favorite city is la
